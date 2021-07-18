@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @IchMagTee
+- 👀 I’m interested in Garry's Mod and Glua
+- 🌱 I’m currently learning Glua
+- 📫 How to reach me on, you can reach me on Discord: Tee#0292
